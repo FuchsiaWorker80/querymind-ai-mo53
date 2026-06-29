@@ -1,4 +1,4 @@
-# 
+# Oficial QueryMind paquete completo. Descarga e instala con guía paso a paso y descarga rápida — rápido, seguro y fácil de usar.
 
 
 
